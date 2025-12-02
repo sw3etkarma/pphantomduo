@@ -1,1 +1,1 @@
-https://github.com/sw3etkarma/phantomduo/blob/a5f2040ab678efe24b590d2b7f220a5e335e2ddb/Tak%20berjudul368_20251122201627.png
+![image alt](https://github.com/sw3etkarma/phantomduo/blob/a5f2040ab678efe24b590d2b7f220a5e335e2ddb/Tak%20berjudul368_20251122201627.png)
